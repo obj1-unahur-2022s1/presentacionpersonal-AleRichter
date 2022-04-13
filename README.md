@@ -17,7 +17,7 @@
 * Me faltaba un detalle, soy fan de los captus.
 
 ## Dejo mi foto para que vean quien soy: 
-
+[Foto Alejandra Richter(Estre)](https://github.com/obj1-unahur-2022s1/presentacionpersonal-AleRichter/blob/main/fotoAleRichter.jpg)
 
 
 
